@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on simulations
 - 📫 How to reach me +86 18742476976
 - 😄 Pronouns: Walmart shopping bag
-- ⚡ Fun fact: I am a human
+- ⚡ Fun fact: I am a nice? human
 
 <!---
 jingqli/jingqli is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
